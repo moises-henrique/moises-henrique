@@ -12,4 +12,4 @@ Meu nome é Moisés Henrique
 
   @moita_charco
   
-![](https://tenor.com/bk4Za.gif)
+![](https://tenor.com/pt-BR/view/dutch-van-der-linde-rdr2-gif-22768331)
