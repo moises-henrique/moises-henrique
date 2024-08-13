@@ -10,6 +10,4 @@ Meu nome é Moisés Henrique
 
   00001096163160so@al.educacao.sp.gov.br
 
-  @moita_charco
-  
-![](https://tenor.com/pt-BR/view/dutch-van-der-linde-rdr2-gif-22768331)
+![](https://tenor.com/bQVBa.gif)
