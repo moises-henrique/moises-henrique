@@ -6,8 +6,8 @@ Meu nome é Moisés Henrique
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-  ## Caso queira entrar em contato 📬
+## Caso queira entrar em contato 📬
 
   00001096163160so@al.educacao.sp.gov.br
 
-![](https://tenor.com/bQVBa.gif)
+![](https://tenor.com/81wj.gif)
