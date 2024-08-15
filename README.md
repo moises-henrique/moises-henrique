@@ -9,5 +9,7 @@ Meu nome é Moisés Henrique
 ## Caso queira entrar em contato 📬
 
   00001096163160so@al.educacao.sp.gov.br
+ 
+  @moita_charco
 
-![](https://tenor.com/81wj.gif)
+![](https://media1.tenor.com/m/69Gh4mOBOAwAAAAC/arthur-morgan-brother.gif)
